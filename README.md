@@ -1,2 +1,3 @@
-# hai
-![](https://i.postimg.cc/YCCRH4pt/Untitled366-20251007015215.png)
+[atabook](https://lovejoy.atabook.org/)
+[prns.cc](https://pronouns.cc/@Soot)
+[tiktok](https://www.tiktok.com/@kabosusoot)
